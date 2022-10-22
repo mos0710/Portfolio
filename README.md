@@ -27,4 +27,4 @@
 Поэтому данная страница обязательно будет пополняться актуальными достижениями, а в конце меня ждет диплом и возможность карьерного роста.
 
 # Спасибо за внимание!
-![](Professional-Girl-Using-Laptop-Clipart-Transparent-PNG.png))
+![](Professional-Girl-Using-Laptop-Clipart-Transparent-PNG.png)
