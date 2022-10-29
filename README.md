@@ -22,6 +22,8 @@
 
 [Продвинутый SQL](https://netology.ru/sharing/271ef6852ab5d8ee9523ac1db44ba9ba?utm_source=social&utm_campaign=achievements)
 
+[GIT - система контроля версий](https://netology.ru/sharing/e67ad2217a29fbca2888c3d0fc0e5143?utm_source=social&utm_campaign=achievements)
+
 ## Впереди еще год обучения по разным направлениям
 
 Поэтому данная страница обязательно будет пополняться актуальными достижениями, а в конце меня ждет диплом и возможность карьерного роста.
